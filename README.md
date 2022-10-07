@@ -4,7 +4,7 @@
 startups or companies.
 - 😎 How to contact me:
 Eveoficial0002@gmail.com or
-instagram: eve_ilustra_oficial
+instagram:@eve_ilustra_oficial
 
 <!---
 Eveilustra/Eveilustra is a ✨ special
